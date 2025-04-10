@@ -1,0 +1,3 @@
+PC
+DESKTOP-2BK04EL 
+wtorek, 25 lutego 2025  11:27:35
